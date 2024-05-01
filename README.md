@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @stanes2
+- 👀 I’m interested in python game
+- 🌱 I’m currently learning python
+- 📫 How to reach me stanesculuiza004@gmail.com and ds: skywinterrzw4
+- ⚡ Fun fact: ...
